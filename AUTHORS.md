@@ -1,3 +1,3 @@
-WONDWOSEN ASEGID <wondwosen.asegid@gmail.com>
-Telegram: @mc_solo
-Twitter/X: @revatoel
+YARED NIGUSSIE<yarednigus21@gmail.com>
+Telegram: @omnipresence21
+Twitter/X: 
